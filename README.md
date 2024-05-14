@@ -1,1 +1,0 @@
-# techievenki.github.io
